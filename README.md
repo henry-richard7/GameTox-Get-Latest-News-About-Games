@@ -14,9 +14,6 @@
 ### My Telegram Channel
 [![](https://img.shields.io/badge/Telegram-Join%20Now-blue?style=for-the-badge&logo=Telegram)](https://t.me/cracked4free)
 
-### Apps Developed By Me
-* Mega Movies - Watch Movies and TV Shows for Free [Download](http://www.henry-richard2k.ml/Downloads/Mega%20Movies%20by%20Henry%20Richard%20J.apk)
-
 # Screenshot
 ![GameTox](https://user-images.githubusercontent.com/68910039/121792984-a8e82680-cc18-11eb-82f9-45a167bd3e79.jpg)
 
